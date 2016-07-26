@@ -1056,3 +1056,5 @@ Check out [this](showerthoughts/showerthoughts.md) showerthoughts subreddit
 [Watch](https://www.youtube.com/watch?v=-XJN7qqFqPE) Too Many Puppies!
 
 You meet [Rickson Gracie](rickson-armbar/ricksonbyarmbar.md)...
+
+Go see the latest [Star Trek](https://www.youtube.com/watch?v=bzD8H6o1awQ) movie!
